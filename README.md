@@ -8,6 +8,7 @@
 - Fifth,you can also play steam with me!,my steam:1045300590
 - Sixth:you can add my bilibili:https://space.bilibili.com/2081285980
 - I will conclude by saying.I love everyone!
+- I want to be a youtuber in the future
 ----------------------------------------------------------------------------------------------
 - chinese:大家好，我是Shrewdnesss1145
 - 我在Minecraft和steam玩的很多
